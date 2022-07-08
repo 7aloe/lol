@@ -1,4 +1,4 @@
-see these socks, they're clean
+see these socks, they're dirty
 i mean they're really dirty
 like i put these on after i got off work
 and i went into the gym in them
